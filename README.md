@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jaidsar
-- 👀 I’m interested in #ai, #buildingscale, #complexproblems, #lowcode
+- 👀 I’m interested in #ai, #solvingproblems, #lowcode, #startups, #futureofwork
 - 💞️ I’m looking to collaborate on #disruptivetech, #ai4business
 - 📫 How to reach me : twitter.com/thisisjaidsar
 
